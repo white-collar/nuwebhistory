@@ -1,1 +1,1 @@
-# Only Vadim can post memes in numemes chat
+# Only Vadim can post memes to numemes chat
